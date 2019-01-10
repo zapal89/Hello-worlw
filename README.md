@@ -1,2 +1,0 @@
-# Hello-worlw
-учимся
